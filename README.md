@@ -1,2 +1,0 @@
-# anu
-anu biriyani
